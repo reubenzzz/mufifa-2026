@@ -1,5 +1,5 @@
 # Reuben Sam Philip (Zonal Lead at Mulearn, Student)
-### Squad Domain: [Coder] | FIFA Nation: [Argentina]
+### Squad Domain: Coder | FIFA Nation: Argentina
 
 ### About Me
 
